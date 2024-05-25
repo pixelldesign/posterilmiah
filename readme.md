@@ -14,5 +14,7 @@ Pixelldesign.com juga memastikan bahwa desain yang dibuat dapat mencerminkan kua
 
 Dalam hal pembuatan poster ilmiah, Pixelldesign.com sangat memperhatikan kesesuaian desain dengan keperluan klien. Poster ilmiah yang berhasil harus mampu memenuhi tujuan sebuah penelitian. Dengan desain yang menarik dan efektif, poster ilmiah dapat menjadi salah satu media promosi yang efektif untuk memperlihatkan hasil penelitian dan membuatnya terlihat profesional.
 
+![alt text]([http://url/to/img.png](https://www.pixelldesign.com/wp-content/uploads/poster-ilmiah-psikologi-remaja.webp)
+
 
 
